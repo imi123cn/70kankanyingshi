@@ -1,6 +1,6 @@
 <h2>70看看影视官网，高清免费在线观看平台|网页版入口|下载</h2>
 <p>70看看影视是一个专注于提供免费在线影视资源的平台，致力于为用户提供便捷的电影、电视剧、动漫等视频内容的在线观看服务。该网站以简洁直观的界面和丰富的资源库吸引了大量用户，是影视爱好者不可错过的优质资源平台。网站不仅提供最新、最热门的影视作品，还涵盖了国产佳作、海外精品以及经典老片，满足不同用户的需求。此外，70看看影视还支持多种视频格式的下载和播放，用户可以轻松找到自己喜欢的影视作品，享受流畅的观影体验。</p>
-<p><strong>一键访问：</strong><a href="https://www.imi123.cn/sites/5859.html" target="_blank"><strong>70看看影视最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://70kankan.wwwnav.com/" target="_blank"><strong>70看看影视最新网址</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/4K电影/无损音乐资源下载资源包</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>网站功能特点：</strong></p>
